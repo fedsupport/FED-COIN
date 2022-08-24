@@ -1,1 +1,1 @@
-# FED-TOKEN
+# FED COIN
